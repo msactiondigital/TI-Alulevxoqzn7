@@ -1,1 +1,0 @@
-# TI-Alulevxoqzn7
